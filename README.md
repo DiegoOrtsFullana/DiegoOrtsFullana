@@ -21,4 +21,4 @@
 - **Soft Skills:** Leadership, team coordination, adaptability, fluent English communication
 
 ## 📫 Let's connect!
-[LinkedIn](https://linkedin.com/in/tuusuario) · [Email](mailto:tuemail@correo.com)
+[LinkedIn](www.linkedin.com/in/diego-orts-a0a803201) · [Email](diegoortsfullana@gmail.com)
